@@ -10,4 +10,4 @@
 
 本站专注于收录国产与欧美日韩乱伦类精品视频资源，涵盖中文字幕、一区二区、无码等热门类型。支持多平台播放，极速加载无广告，致力于打造纯净便捷的观影环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh19 ）</span>
